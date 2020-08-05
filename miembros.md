@@ -1,6 +1,6 @@
 # Miembros
 
-* New Fury
+* New Fury pro
 * Capitán America
 * Black panther
 * Black Widow
